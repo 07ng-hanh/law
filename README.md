@@ -1,5 +1,5 @@
 [Untitled document.pdf](https://github.com/user-attachments/files/30397891/Untitled.document.pdf)
-[Section 1- Meaning and basic concepts of law.pdf](https://github.com/userattachments/files/30397922/Section.1-.Meaning.and.basic.concepts.of.law.pdf)
+[Section 1- Meaning and basic concepts of law.pdf](https://github.com/user-attachments/files/30397961/Section.1-.Meaning.and.basic.concepts.of.law.pdf)
 [Sources of Law.pdf](https://github.com/user-attachments/files/30397915/Sources.of.Law.pdf)
 [Forms of Government.pdf](https://github.com/user-attachments/files/30397910/Forms.of.Government.pdf)
 [Legal System.pdf](https://github.com/user-attachments/files/30397912/Legal.System.pdf)
